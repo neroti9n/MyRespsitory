@@ -1,2 +1,0 @@
-# MyRespsitory
-qweqwe
